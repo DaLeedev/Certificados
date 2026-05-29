@@ -1,3 +1,3 @@
 # Certificados
 
-Certificados obtenidos a los largo de carrera profesional
+Certificados obtenidos a lo largo de mi carrera y vida profesional
